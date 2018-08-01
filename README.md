@@ -1,1 +1,0 @@
-# JeremyHancock.github.io
